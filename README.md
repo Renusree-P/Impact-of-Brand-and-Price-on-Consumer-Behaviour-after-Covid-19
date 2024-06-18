@@ -29,7 +29,7 @@ With the Covid-19 pandemic, everything has been disrupted including lifestyles a
 #### Results and Discussion
 - The priority of majority of consumers has shifted to price over brand
 - Quality still remaind a crucial factor.
-- Duscounts are influencing consumers purchasing decisions.
+- Discounts are influencing consumers purchasing decisions.
   
 #### Conclusions
 - Price sensitivity has increased.
